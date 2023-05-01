@@ -1,0 +1,1 @@
+**[DXSETUP](https://autopatchos.starrails.com/client/DXSETUP.zip)**

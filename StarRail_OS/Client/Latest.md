@@ -1,0 +1,1 @@
+**[Latest release link | OS Launcher](https://hkrpg-launcher.hoyoverse.com/hkrpg_global/mdk/launcher/api/resource?launcher_id=35&key=vplOVX8Vn7cwG8yb)**
